@@ -60,4 +60,4 @@ The TOOL: [Eric Zimmerman's tools](https://ericzimmerman.github.io/#!index.md)
 <br><br>
 
 # <b> 📞Contact: </b>
-- [Prince Prafull](https://github.com/princep4)
+- [Prince Prafull](https://www.linkedin.com/in/prince-prafull-19a477194/)
